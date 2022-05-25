@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @LontraTransparente
+- 👀 I’m interested in almost anything
+- 🌱 I’m currently learning programming
+- 💞️ I’m looking to collaborate on society asecension
+- 📫 How to reach me 
+- 
+- 
+- 
+- Don't try to.
